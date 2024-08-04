@@ -1,5 +1,5 @@
 - 👋 Hi, I'm Lance
-- 👀 I’m interested in data science and finance
+- 👀 I’m interested in big data and finance
 - 📫 How to reach me: lallan@stanford.edu
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love playing soccer, basketball, and beach volleyball.
