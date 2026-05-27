@@ -1,5 +1,5 @@
 - 👋 Hi, I'm Lance
-- 👀 I’m interested in product marketing and strategy
+- 👀 I’m interested in product marketing, partnerships, and strategy
 - 📫 How to reach me: lanceallan206@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love playing soccer, basketball, and beach volleyball.
